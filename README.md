@@ -1,3 +1,3 @@
 # TrickyTrackClone
 
-[![TrickyTrackClone](https://img.youtube.com/vi/QfhPyeleQRE)](https://www.youtube.com/watch?v=QfhPyeleQRE)
+[![TrickyTrackClone](https://img.youtube.com/vi/QfhPyeleQRE/0.jpg)](https://www.youtube.com/watch?v=QfhPyeleQRE)
